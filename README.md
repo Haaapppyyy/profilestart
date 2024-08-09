@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 💙💙
+### Boas vindas ao meu perfil 👍
 Meu nome é Arthur Felipe
 
   • Estou estudando na Alura
@@ -9,6 +9,6 @@ Meu nome é Arthur Felipe
 
 ### Você pode entrar em contato comigo 📫
 
-alurastartestudante@email.com
+00001106554541sp@al.educacao.sp.gov.br
 
 @alurastartestudante
