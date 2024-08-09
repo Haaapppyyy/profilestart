@@ -13,5 +13,5 @@ Meu nome é Arthur Felipe
 
 @alurastartestudante
 
-![gif](https://github.com/user-attachments/assets/2cdc7ad2-44f7-47d4-a21d-46909490597f)
+![](https://media.tenor.com/5NNbKFdAm6wAAAAi/emoji-smiley.gif)
 
