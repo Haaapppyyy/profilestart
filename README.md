@@ -11,7 +11,7 @@ Meu nome é Arthur Felipe
 
 00001106554541sp@al.educacao.sp.gov.br
 
-@alurastartestudante
+@Haaapppyyy
 
 ![](https://media.tenor.com/5NNbKFdAm6wAAAAi/emoji-smiley.gif)
 
